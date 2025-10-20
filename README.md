@@ -1,0 +1,2 @@
+# tamaktany
+Onlanbai Askar 
